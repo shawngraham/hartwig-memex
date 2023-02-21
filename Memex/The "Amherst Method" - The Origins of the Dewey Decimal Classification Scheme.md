@@ -1,0 +1,4 @@
+- It is theorized that [[Melvil Dewy]] copied and used a previous system created by [[Phipps Blake]]
+	- There is not evidence to back this claim 
+- Dewey studies philosophies that contributed to his work regarding the decimal system he created
+	- Created a common classification system for libraries that significantly benefited research within the United States 
