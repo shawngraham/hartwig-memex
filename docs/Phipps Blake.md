@@ -1,0 +1,1 @@
+Was an American geologist, mining consultant, and educator.
