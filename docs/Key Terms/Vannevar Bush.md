@@ -1,0 +1,3 @@
+Bush (1890-1974) was an engineer and inventory whose contributions to engineering and information science were considerable. His most important contribution is widely considered to be his work as head of the U.S. Office of Scientific Research and Development (OSRD) during World War II.
+
+https://www.asist.org/about/history-of-information-science/pioneers-of-information-science/vannevar-bush-2/#:~:text=Bush%20(1890%2D1974)%20was,OSRD
